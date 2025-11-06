@@ -12,7 +12,7 @@
 > *"Starting strong with TOP 2.3% in our first 'Get Started' competition!"*
 
 **11 Submissions | 24 Days | ONE MISSION: DOMINATE**
-
+      
 </div>
 
 ---
